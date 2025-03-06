@@ -1,4 +1,4 @@
-👋 Hi, I’m @Star-V-06, an 18 y/o tech entusiast, currently pursuing Bachelors in Data Science from IIT Madras
+👋 Hi, I’m @Star-V-06, an 18 y/o tech enthusiast, currently pursuing Bachelors in Data Science from IIT Madras
 
 👀 I like finding fun in everything from studying to music and from simple evening walks to mind-boggling projects 
 
